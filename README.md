@@ -1,2 +1,2 @@
 # Aqua
-Interested in development
+Thank you for joining me
